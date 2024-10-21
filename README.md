@@ -1,4 +1,4 @@
-👋 🙂 Hi, I’m @digvijaypundkar
+👋 🙂 Hi, I’m Digvijay Pundkar
 
 💻  I’m an aspiring data analyst with a strong passion for turning data into meaningful insights.
 
